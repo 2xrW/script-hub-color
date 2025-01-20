@@ -1,1 +1,0 @@
-# script-hub-color
